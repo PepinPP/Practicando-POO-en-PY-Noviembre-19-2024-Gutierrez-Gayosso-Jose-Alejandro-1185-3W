@@ -38,7 +38,9 @@ Ejercicio 6
 
 Ejercicio 7
 
+![image](https://github.com/user-attachments/assets/8e587952-712a-45a8-aa2b-f8ef330ade6e)
 
+![image](https://github.com/user-attachments/assets/bc19a9de-0a80-41c4-93a6-265b33c653f0)
 
 
 
